@@ -1,0 +1,2 @@
+# mau-thiet-thiet-ke-biet-thu-vuon-1-tang-hien-dai-tai-hue
+Hôm nay, NEOHouse xin gửi đến toàn thể quý vị và các bạn đọc tham khảo mẫu thiết kế biệt thự vườn 1 tầng theo phong cách kiến trúc hiện đại, đơn giản và nhẹ nhàng. Với lối thiết kế kiến trúc trang nhã, thanh lịch kết hợp cùng sân vườn thoáng mát, chắc chắn đây sẽ là một trong những sự lựa chọn khả thi dành cho quý khách hàng nào đang có nhu cầu về loại hình kiến trúc này. Nào! Cùng NEOHouse khám phá nhé!
